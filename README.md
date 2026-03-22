@@ -7,8 +7,8 @@
 **Let's Connect -**
 [**Email**](mailto:li.wanr@outlook.com)
 <small>|</small>
-[**Gravatar**](https://gravatar.com/liwanr)
-<small>|</small>
 [**Telegram**](https://t.me/itsWanr)
 <small>|</small>
 [**My Website**](https://liWanr.com)
+<small>|</small>
+[**Gravatar**](https://gravatar.com/liwanr)
