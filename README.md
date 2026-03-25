@@ -6,7 +6,7 @@
 
 平时喜欢打台球和羽毛球, 台球线上可以在 **Shooterspool** 找我玩。也比较喜欢听流行音乐, 歌手中意 **陈奕迅**, 觉得 **林夕** <small>/</small> **黄伟文** 的填词加 **郭伟亮** 等老香港作曲就能封神。
 
-**Let's Connect -**
+**Let's Chat -**
 [**Email**](mailto:li.wanr@outlook.com)
 <small>|</small>
 [**Telegram**](https://t.me/itsWanr)
